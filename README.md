@@ -1,5 +1,5 @@
 - 👋 hi, I’m @mayzernator
-- 👀 i love cars, and space (porsche 918 spyder 🔛🔝)
+- 👀 i love my gorgeous girlfriend :3, cars, and space (porsche 918 spyder 🔛🔝) 
 - 🌱 i’m currently learning more about C++
 - 📫 how to reach me, discord: 'mayishmold', tiktok: '918spyder.jpg', instagram '918 spyder.jpg'
 - 💖 pronouns: she/her/hers
